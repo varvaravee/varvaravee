@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @varvaravee
-- 👀 I’m interested in finding a job opportunity to begin applying my coding knowledge and interpersonal skills.
+- 👀 I’m interested in finding a job opportunity to begin applying my fresh coding knowledge and strong interpersonal skills.
 - 🌱 I’m currently learning python, and polishing my C++ skills.
 - 💞️ I’m looking to collaborate on any fun projects or to help you solve a problem!
 - 📫 How to reach me: varvaravee@gmail.com | https://www.linkedin.com/in/varvara-vorobieva-20302a173/
